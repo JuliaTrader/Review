@@ -60,7 +60,7 @@ XM’s global reputation extends to Nigeria with a **$30 no deposit bonus**, unl
 - ✔️ Multiple PKR funding options for seamless deposits  
 
 #### How to Claim  
-- (Click here and register Here](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=0)
+- [Click here and register Here](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=0)
 - Complete KYC with valid ID  
 - Get $30 and start placing real trades  
 
