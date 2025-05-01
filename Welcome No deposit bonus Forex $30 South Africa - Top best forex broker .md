@@ -108,7 +108,7 @@ For those who prefer a **100% deposit bonus**, **AvaTrade** has a fantastic offe
 
 ## 🔥 Summary Table of Forex Brokers Offering No Deposit Bonuses
 
-| Broker       | Bonus Type                | Bonus Amount | Sign-Up CTA                                   |
+| Broker       | Bonus Type                | Bonus Amount | Sign-Up                                   |
 |--------------|---------------------------|--------------|-----------------------------------------------|
 | **JustMarkets** | 🎁 No Deposit Bonus       | $50          | 👉 [Claim Bonus](https://one.justmarkets.link/a/79iqw0j6nj)     |
 | **XM**        | 🎁 No Deposit Bonus       | $30          | 👉 [Claim Bonus](https://fbs.partners?ibl=587836&ibp=21398815)          |
