@@ -2,6 +2,8 @@
 
 Welcome to the definitive guide covering the **Justmarkets Welcome Bonus $30**—your fast track to exploring the world of **forex trading** with an immediate advantage. In this comprehensive markdown document, you'll find every detail, term, and condition related to the bonus, along with powerful marketing insights designed to help you unlock your trading potential and **open a live account** today.
 
+🏅 [Click Here Open Account and Get Bonus now!](https://one.justmarkets.link/a/79iqw0j6nj/registration/trader) 🏅
+
 ## Table of Contents
 
 1. [Introduction](#introduction)  
