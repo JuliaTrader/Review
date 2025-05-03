@@ -6,7 +6,6 @@ Neste guia VIP, você vai encontrar uma análise completa, atualizada e especial
 
 ## 🔽 Modo de Leitura: Clique para expandir os tópicos
 
-<details>
 <summary><strong>Método e Objetivos</strong></summary>
 
 Nosso foco foi selecionar plataformas:
@@ -16,9 +15,7 @@ Nosso foco foi selecionar plataformas:
 - Que ofereçam **bônus, contas demo e ferramentas avançadas** 🧰
 - Indicadas tanto para iniciantes quanto para profissionais 👨‍🏫
 
-</details>
 
-<details>
 <summary><strong>Comparativo das Corretoras</strong></summary>
 
 | Corretora      | Bônus              | Depósito Mínimo | Plataforma       | Regulamentação | Link Para Conta |
@@ -34,7 +31,7 @@ Nosso foco foi selecionar plataformas:
 | **XTB**        | Sem bônus           | R$ 0            | xStation         | FCA, CNMV      | [Entrar agora](https://link-pso.xtb.com/pso/zrUCY) |
 | **Amarkets**   | Até 100% depósito   | $100            | MT4, MT5         | FSC            | [Conta ativa](https://amarketstrading.co/?g=WNRAN9) |
 
-</details>
+
 
 ---
 
