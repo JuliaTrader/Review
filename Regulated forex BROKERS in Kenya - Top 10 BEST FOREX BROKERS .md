@@ -337,4 +337,15 @@ When selecting a forex broker, consider the following factors:
 **2. Is forex trading legal in Kenya?**
 
 - Yes, but ensure you trade with brokers regulated by reputable authorities
+
+ Read more:
  
+ [Regulated forex BROKERS in Kenya ](https://github.com/JuliaTrader/Review/blob/main/Regulated%20forex%20BROKERS%20in%20Kenya%20-%20Top%2010%20BEST%20FOREX%20BROKERS%20.md)
+ 
+[Lowest Spread Forex Broker for XAUUSD](https://github.com/JuliaTrader/Review/blob/main/Lowest%20Spread%20Forex%20Broker%20for%20Gold%20XAU%20USD%20.md)
+
+[BEST CFD Brokers in the world](https://github.com/BestForexBrokersintheworld/Top-Forex-Brokers/blob/main/BEST%20CFD%20Brokers%20in%20the%20world%202025%20.md)
+
+[Justmarkets Welcome Bonus $30 terms and conditions](https://github.com/JuliaTrader/Review/blob/main/Justmarkets%20Welcome%20Bonus%20%2430%20terms%20and%20conditions%20.md)
+
+[Justmarkets welcome bonus No Deposit](https://github.com/JuliaTrader/Review/blob/main/Justmarkets%20welcome%20bonus%20No%20Deposit%20and%20how%20to%20Claim%20.md)
