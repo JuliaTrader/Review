@@ -186,3 +186,14 @@ A: Always review each broker’s official “Promotions” or “Bonus” page l
 ---
 
 *Note: Always trade responsibly. Forex trading involves significant risk of loss. Ensure you understand the terms and conditions before participating in any bonus promotion.*
+
+Read more:
+
+[Corretoras Forex com maior alavancagem para 2025](https://github.com/JuliaTrader/Review/blob/main/Corretoras%20Forex%20com%20maior%20alavancagem%20para%202025%20.md)
+
+[Melhores Corretoras de Forex no Brasil Para Iniciantes](https://github.com/JuliaTrader/Review/blob/main/Melhores%20Corretoras%20de%20Forex%20no%20Brasil%20Para%20Iniciantes%20para%202025%20.md)
+
+[Melhores Corretoras ECN Forex](https://github.com/JuliaTrader/Review/blob/main/Melhores%20Corretoras%20ECN%20Forex%20para%202025%20.md)
+
+[Menores Spreads em Corretoras Forex](https://github.com/JuliaTrader/Review/blob/main/Menores%20Spreads%20em%20Corretoras%20Forex%20para%202025%20.md)
+
